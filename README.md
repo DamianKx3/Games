@@ -18,4 +18,4 @@ https://gamejolt.com/games/DuszpasteX-War_Criminal/928014
 
 Machmol Project: 
 
-WIP
+WIP (ale to bedzie najwiekszy projekt)
